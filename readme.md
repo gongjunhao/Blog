@@ -25,10 +25,12 @@ I will improve and perfect it step by step
 
 [Duoshuo](http://duoshuo.com/)
 
+[Balsamiq mockups](http://balsamiq.com/)
+
 
 ## Communication ##
 
-You can contact me by flow ways 
+You can contact me by following ways 
 
 > gongjunhao@sina.com
 >
